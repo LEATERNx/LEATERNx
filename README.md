@@ -1,16 +1,13 @@
-### Hi there 👋
+**Hi, I'm LEATERN**  
 
-<!--
-**LEATERNx/LEATERNx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+♥
 
-Here are some ideas to get you started:
+![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1003336396708266067/ab69a754eddd826c1ee9fcd5f071ef24.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+♥
+
+
+## 🌐 Socials:                                                                                                                         
+[![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/channel/UC8CS5Q1S2rOiaLv6Mu2ZlNw)  [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/GuyWQmZKY3)  
+
+♦
