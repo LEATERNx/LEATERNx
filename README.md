@@ -2,7 +2,7 @@
 
 ♥
 
-![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1003336396708266067/ab69a754eddd826c1ee9fcd5f071ef24.png)
+![MasterHead](https://media.discordapp.net/attachments/703089193764782180/1218564217091915776/1500x500.jpg?ex=661159dd&is=65fee4dd&hm=c6f7fd496eb3892cf6beef58369e05bc47c8b5bb3c5ef8ac58e014fd4fa98797&=&format=webp)
 
 ♥
 
