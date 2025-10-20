@@ -1,3 +1,3 @@
 **Hi, I'm LEATERN** 
 
-![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1429660233021784064/NaffCpT.png?ex=68f6f259&is=68f5a0d9&hm=a35506c18ef81eb90414d970fe6ee2c5af424b24aa55d053b50965a57b8ebac5&)
+![MasterHead](https://cdn.discordapp.com/attachments/703089193764782180/1429884503333011456/ZKr01hS.png?ex=68f7c337&is=68f671b7&hm=9e0ed956dd5336b07a1264e1fd5b5ef0da2616ab1aecfa6c744c009a774ac9c1&)
