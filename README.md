@@ -1,3 +1,1 @@
-**Hi, I'm LEATERN**  
-
-♥
+**Hi, I'm LEATERN** 
